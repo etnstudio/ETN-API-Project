@@ -1,5 +1,21 @@
 # YT Galaxy Extracted Links
 
+### 🎬 Ertugrul Ghazi Urdu | Episode 5 | Season 1
+![Thumbnail](https://i.ytimg.com/vi/WPwoF-RnqHU/hqdefault.jpg?sqp=-oaymwEiCKgBEF5IWvKriqkDFQgBFQAAAAAYASUAAMhCPQCAokN4AQ==&rs=AOn4CLBVFOCyiu0Jprw7g6xR0F1hn7wU4Q)
+⏱️ **Duration:** 43:15
+💾 **Quality:** 360p (Video+Audio) (MPEG-4)
+🌐 **Original Link:** https://www.youtube.com/watch?v=WPwoF-RnqHU
+🔗 **Extracted Link:** [Click Here to Play/Download](https://rr2---sn-hvcpapo3-aixz.googlevideo.com/videoplayback?expire=1788323601&ei=sVKXauWdCfvq2fcP3frf8QU&ip=2404%3A3100%3A19f8%3Aa229%3A18d1%3A418b%3A34ef%3A74ce&id=o-AJRu-TSu_FYmrOaTgYwNaWHnhqIhApTu3SnHR3uXzflo&itag=18&source=youtube&requiressl=yes&xpc=EgVo2aDSNQ%3D%3D&cps=488&met=1788302001%2C&mh=8j&mm=18%2C29&mn=sn-hvcpapo3-aixz%2Csn-2o4wg5-5q&ms=aub%2Crdu&mv=m&mvi=2&pl=44&rms=aub%2Caub&pcm2=no&initcwndbps=646250&bui=AR3QkAn1YwmgoVb4cm4DkasAlwvUdG3AvH4Iry_XjtLfDJtNrl7qVVVtVdf8vN5sH1A2buWXfjnbC8V2&spc=I-rgIZ-XwyVRoZhG8RzCXdHFSuEL8ISQqiJNG36HCgPzamao4osjLJjPLYCmi1V5zOo&vprv=1&svpuc=1&mime=video%2Fmp4&rqh=1&cnr=14&ratebypass=yes&dur=2594.620&lmt=1736227623875545&mt=1788301740&fvip=1&fexp=51565116%2C52135441&c=ANDROID&txp=4538534&sparams=expire%2Cei%2Cip%2Cid%2Citag%2Csource%2Crequiressl%2Cxpc%2Cpcm2%2Cbui%2Cspc%2Cvprv%2Csvpuc%2Cmime%2Crqh%2Ccnr%2Cratebypass%2Cdur%2Clmt&sig=AE0s2JYwRQIhAIW4wPYd0viVG5kGp3zLax1DFl3qnd9OsVrLHKh9dD5uAiATqkI4dubafPkwZnSISrVjUqqFwLL63h_y7fGRV6Xq1A%3D%3D&lsparams=cps%2Cmet%2Cmh%2Cmm%2Cmn%2Cms%2Cmv%2Cmvi%2Cpl%2Crms%2Cinitcwndbps&lsig=APaTxxMwRgIhANchGoSNXPHD7VUWlGsM1ehMHFrmw4kQy4t0V9ppi2q9AiEAg1bKyUwmPQFq6eoSaB_xgc8qlxEzUZAK202-HThKV3w%3D&cpn=aYplMLTRk79sWJaT)
+---
+
+### 🎬 Ertugrul Ghazi Urdu | Episode 4 | Season 1
+![Thumbnail](https://i.ytimg.com/vi/l0GN8_iwDwE/hqdefault.jpg?sqp=-oaymwEiCKgBEF5IWvKriqkDFQgBFQAAAAAYASUAAMhCPQCAokN4AQ==&rs=AOn4CLCwZ0C_4pyhVrRTZYtQ3bHyBNezdw)
+⏱️ **Duration:** 43:14
+💾 **Quality:** 360p (Video+Audio) (MPEG-4)
+🌐 **Original Link:** https://www.youtube.com/watch?v=l0GN8_iwDwE
+🔗 **Extracted Link:** [Click Here to Play/Download](https://rr2---sn-hvcpapo3-aixl.googlevideo.com/videoplayback?expire=1788323569&ei=kVKXaqfrGrGVoccP3tTGyAs&ip=2404%3A3100%3A19f8%3Aa229%3A18d1%3A418b%3A34ef%3A74ce&id=o-AIu4NqdCugfGAeOagVi9w4MUOcm_C4akCWTaK3CAonEP&itag=18&source=youtube&requiressl=yes&xpc=EgVo2aDSNQ%3D%3D&cps=463&met=1788301969%2C&mh=ix&mm=18%2C29&mn=sn-hvcpapo3-aixl%2Csn-2o4wg5-5c&ms=aub%2Crdu&mv=m&mvi=2&pl=44&rms=aub%2Caub&initcwndbps=602500&bui=AR3QkAm86HCQxWrUcyu3R7oa8rr5Fu--sDg2lyWADKFJMpT8LzyFGJ5TtFGzYy80Ajur-2-70rQ1vzkV&spc=KBGBcuLk6obHGfSnXyHIqB4a5ezZpFqG9-dp4hN9yNBU6eVFtAGm2MbLfwv493g3yXo&vprv=1&svpuc=1&mime=video%2Fmp4&rqh=1&cnr=14&ratebypass=yes&dur=2593.668&lmt=1739638678104057&mt=1788301740&fvip=4&fexp=51565116%2C52135441&c=ANDROID&txp=4538534&sparams=expire%2Cei%2Cip%2Cid%2Citag%2Csource%2Crequiressl%2Cxpc%2Cbui%2Cspc%2Cvprv%2Csvpuc%2Cmime%2Crqh%2Ccnr%2Cratebypass%2Cdur%2Clmt&sig=AE0s2JYwRgIhALEDL2wwD6KKhYM_U0xcrM8kpRtSXvFl1eyVCNLUyguMAiEA7z1ZPaWTgT8RTBZJEVM6MxHaX4Dm9msDdT3lCmCEOdg%3D&lsparams=cps%2Cmet%2Cmh%2Cmm%2Cmn%2Cms%2Cmv%2Cmvi%2Cpl%2Crms%2Cinitcwndbps&lsig=APaTxxMwRQIgWhGkc-uBi8nJslZiImg8yz7oULbxtERYJeAopfm8G7wCIQCXqHh6hX014S2luQ4StZaCDuVjRpP1ghQs166UNE_Hbw%3D%3D&cpn=j0MljkgOvbm4TLIy)
+---
+
 ### 🎬 Ertugrul Ghazi Urdu | Episode 3 | Season 1
 ![Thumbnail](https://i.ytimg.com/vi/U5sJ59S6mNs/hqdefault.jpg?sqp=-oaymwEiCKgBEF5IWvKriqkDFQgBFQAAAAAYASUAAMhCPQCAokN4AQ==&rs=AOn4CLBJLbs8nPcgvsXkJ2R2Z3Rb9DBabA)
 ⏱️ **Duration:** 46:21
