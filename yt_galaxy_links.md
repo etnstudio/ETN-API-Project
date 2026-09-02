@@ -8,14 +8,6 @@
 🔗 **Extracted Link:** [Click Here to Play/Download](https://rr1)
 ---
 
-### 🎬 Ertugrul Ghazi Urdu | Episode 2 | Season 1
-![Thumbnail](https://i.ytimg.com/vi/EXdtyUnUpGY/hqdefault.jpg?sqp=-oaymwEiCKgBEF5IWvKriqkDFQgBFQAAAAAYASUAAMhCPQCAokN4AQ==&rs=AOn4CLDfuvK5sXsG7RzzT2IuNrknPekPdg)
-⏱️ **Duration:** 45:16
-💾 **Quality:** 360p (Video+Audio) (MPEG-4)
-🌐 **Original Link:** https://www.youtube.com/watch?v=EXdtyUnUpGY
-🔗 **Extracted Link:** [Click Here to Play/Download](https://rr4)
----
-
 ### 🎬 Ertugrul Ghazi Urdu | Episode 3 | Season 1
 ![Thumbnail](https://i.ytimg.com/vi/U5sJ59S6mNs/hqdefault.jpg?sqp=-oaymwEiCKgBEF5IWvKriqkDFQgBFQAAAAAYASUAAMhCPQCAokN4AQ==&rs=AOn4CLBJLbs8nPcgvsXkJ2R2Z3Rb9DBabA)
 ⏱️ **Duration:** 46:21
