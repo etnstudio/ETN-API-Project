@@ -1,5 +1,13 @@
 # YT Galaxy Extracted Links
 
+### 🎬 Ertugrul Ghazi Urdu | Episode 11 | Season 1
+![Thumbnail](https://i.ytimg.com/vi/39Nkh09QfWU/hqdefault.jpg?sqp=-oaymwEiCKgBEF5IWvKriqkDFQgBFQAAAAAYASUAAMhCPQCAokN4AQ==&rs=AOn4CLBlmw_9QzrKGGByq5vNNbLbGFQI0Q)
+⏱️ **Duration:** 44:06
+💾 **Quality:** 360p (Video+Audio) (MPEG-4)
+🌐 **Original Link:** https://www.youtube.com/watch?v=39Nkh09QfWU
+🔗 **Extracted Link:** [Click Here to Play/Download](https://rr5---sn-hvcpapo3-aixe.googlevideo.com/videoplayback?expire=1788396139&ei=C26Yau6qCpaVqdwPn-C3gQY&ip=2404%3A3100%3A1803%3Ab0d6%3A1%3A0%3A5071%3Ad592&id=o-AM12pcTSgpUnXwfrZQEvsWaNvcnD49zbXVOkpSRt58Qi&itag=18&source=youtube&requiressl=yes&xpc=EgVo2aDSNQ%3D%3D&cps=437&met=1788374539%2C&mh=gj&mm=18%2C29&mn=sn-hvcpapo3-aixe%2Csn-hju7enel&ms=aub%2Crdu&mv=m&mvi=5&pl=44&rms=aub%2Caub&initcwndbps=283750&bui=AR3QkAms-69ELLwhVl14cdvo12P2bsNKcmKbunF84cRxqov1H5zwrbZxnWNjHHPWuAQYhBo8MJf21I9k&spc=I-rgITQXXG3-ApIwCCqZZVD1DrDUzYyIwZuDq-2c5fjUvPom8s1H7BetlNCm_GV4hSE&vprv=1&svpuc=1&mime=video%2Fmp4&rqh=1&cnr=14&ratebypass=yes&dur=2646.424&lmt=1708737480502253&mt=1788374230&fvip=2&fexp=51565116%2C52135441&c=ANDROID&txp=4538434&sparams=expire%2Cei%2Cip%2Cid%2Citag%2Csource%2Crequiressl%2Cxpc%2Cbui%2Cspc%2Cvprv%2Csvpuc%2Cmime%2Crqh%2Ccnr%2Cratebypass%2Cdur%2Clmt&sig=AE0s2JYwRQIgR16qMrUaXEa5lE_hDZNfhKmHJU_6iUOGdJhpzNq8KaACIQCBHEU64fCJJCK6uTV4hTNLxSd_63JE7u5nGx-d8zDigw%3D%3D&lsparams=cps%2Cmet%2Cmh%2Cmm%2Cmn%2Cms%2Cmv%2Cmvi%2Cpl%2Crms%2Cinitcwndbps&lsig=APaTxxMwRQIhAKD25vaoOTZJyHByAAK6qZKbE7pcTBllfEg347vs1jCyAiA3GIx5R-bNrvTDfhU0zsIT-OuEz1AStBp2v2JJGEIK4A%3D%3D&cpn=60hdz0vInzXs_U-F)
+---
+
 ### 🎬 Ertugrul Ghazi Urdu | Episode 1 | Season 1
 ![Thumbnail](https://i.ytimg.com/vi/fa89NxhAKis/hqdefault.jpg?sqp=-oaymwEiCKgBEF5IWvKriqkDFQgBFQAAAAAYASUAAMhCPQCAokN4AQ==&rs=AOn4CLAQ1VxwR8hnBVFTnaPH7WeMn-3Kxw)
 ⏱️ **Duration:** 45:05
