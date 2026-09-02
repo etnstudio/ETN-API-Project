@@ -1,13 +1,5 @@
 # YT Galaxy Extracted Links
 
-### 🎬 Ertugrul Ghazi Urdu | Episode 4 | Season 1
-![Thumbnail](https://i.ytimg.com/vi/l0GN8_iwDwE/hqdefault.jpg?sqp=-oaymwEiCKgBEF5IWvKriqkDFQgBFQAAAAAYASUAAMhCPQCAokN4AQ==&rs=AOn4CLCwZ0C_4pyhVrRTZYtQ3bHyBNezdw)
-⏱️ **Duration:** 43:14
-💾 **Quality:** 360p (Video+Audio) (MPEG-4)
-🌐 **Original Link:** https://www.youtube.com/watch?v=l0GN8_iwDwE
-🔗 **Extracted Link:** [Click Here to Play/Download](https://rr2)
----
-
 ### 🎬 Ertugrul Ghazi Urdu | Episode 3 | Season 1
 ![Thumbnail](https://i.ytimg.com/vi/U5sJ59S6mNs/hqdefault.jpg?sqp=-oaymwEiCKgBEF5IWvKriqkDFQgBFQAAAAAYASUAAMhCPQCAokN4AQ==&rs=AOn4CLBJLbs8nPcgvsXkJ2R2Z3Rb9DBabA)
 ⏱️ **Duration:** 46:21
