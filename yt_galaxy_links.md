@@ -8,11 +8,3 @@
 🔗 **Extracted Link:** [Click Here to Play/Download](https://rr1)
 ---
 
-### 🎬 Ertugrul Ghazi Urdu | Episode 8 | Season 1
-![Thumbnail](https://i.ytimg.com/vi/jpp92OUeoPk/hqdefault.jpg?sqp=-oaymwEiCKgBEF5IWvKriqkDFQgBFQAAAAAYASUAAMhCPQCAokN4AQ==&rs=AOn4CLCd8K8X-X6B1cvn7iHhnbHZylagwA)
-⏱️ **Duration:** 46:02
-💾 **Quality:** 360p (Video+Audio) (MPEG-4)
-🌐 **Original Link:** https://www.youtube.com/watch?v=jpp92OUeoPk
-🔗 **Extracted Link:** [Click Here to Play/Download](https://rr3)
----
-
