@@ -64,11 +64,3 @@
 🔗 **Extracted Link:** [Click Here to Play/Download](https://rr2)
 ---
 
-### 🎬 Ertugrul Ghazi Urdu | Episode 6 | Season 1
-![Thumbnail](https://i.ytimg.com/vi/sdVnFA9Qb4A/hqdefault.jpg?sqp=-oaymwEiCKgBEF5IWvKriqkDFQgBFQAAAAAYASUAAMhCPQCAokN4AQ==&rs=AOn4CLDttRF161dQgBFkuMitwEhU27F6YQ)
-⏱️ **Duration:** 48:08
-💾 **Quality:** 360p (Video+Audio) (MPEG-4)
-🌐 **Original Link:** https://www.youtube.com/watch?v=sdVnFA9Qb4A
-🔗 **Extracted Link:** [Click Here to Play/Download](https://rr5)
----
-
