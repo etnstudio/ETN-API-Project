@@ -16,11 +16,3 @@
 🔗 **Extracted Link:** [Click Here to Play/Download](https://rr3)
 ---
 
-### 🎬 Ertugrul Ghazi Urdu | Episode 9 | Season 1
-![Thumbnail](https://i.ytimg.com/vi/nnbmRYRoY_M/hqdefault.jpg?sqp=-oaymwEiCKgBEF5IWvKriqkDFQgBFQAAAAAYASUAAMhCPQCAokN4AQ==&rs=AOn4CLBT4gC6pmCSfY60-NzkGX_KrAhyKg)
-⏱️ **Duration:** 45:25
-💾 **Quality:** 360p (Video+Audio) (MPEG-4)
-🌐 **Original Link:** https://www.youtube.com/watch?v=nnbmRYRoY_M
-🔗 **Extracted Link:** [Click Here to Play/Download](https://rr1)
----
-
